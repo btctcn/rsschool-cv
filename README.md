@@ -1,2 +1,1 @@
-**Please find my CV here**: 
-https://btctcn.github.io/rsschool-cv/cv 
+**Please find my CV [here!](https://btctcn.github.io/rsschool-cv/cv)**: 
