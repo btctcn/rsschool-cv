@@ -1,6 +1,6 @@
 # Andrey Butcitcyn
 
-## Contacts:
+## Contacts
 * **e-mail:** *btctcn@gmail.com*
 * **telegram:** *@btctcn*
 * **LinkedIn:** *www.linkedin.com/in/btctcn*
